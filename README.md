@@ -1,0 +1,2 @@
+# e-MART
+E-mart is a website designed to provide unemployed workers  with the aim of providing employment to our society. Lack of unemployment  and a lack of labour will hinder the growth of society. Here, the e-mart website  makes a clear solution. Thus, e-mart is becoming indirectly contributing to the  progress of the society due to the lack of employment and the workers who do  not have the workers.
